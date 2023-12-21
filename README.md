@@ -1,2 +1,1 @@
-# congenial-giggle
-pizonOS
+fuck you
